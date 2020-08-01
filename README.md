@@ -2,5 +2,5 @@
 learning the github way
 
 
-Hi firends,
-I hope you are all healthy and safe.
+Hello Friends,
+Hope you are all well and safe. Wear a mask.
